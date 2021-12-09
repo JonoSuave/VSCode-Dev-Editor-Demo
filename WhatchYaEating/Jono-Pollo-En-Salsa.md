@@ -1,0 +1,1 @@
+Slow cooked chicken marinated in creole sauce. Comes with tostones (fried, green plantain chips) on the side.
